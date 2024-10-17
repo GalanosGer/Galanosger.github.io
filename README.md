@@ -1,1 +1,1 @@
-# galanosger.github.io
+# GalanosGer.github.io
